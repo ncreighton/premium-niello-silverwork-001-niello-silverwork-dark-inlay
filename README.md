@@ -1,0 +1,2 @@
+# premium-niello-silverwork-001-niello-silverwork-dark-inlay
+Tired of niello experiments that end up cracked, cloudy, or toxic? Stop guessing and start mastering the ancient art of dark inlay with a precision 'lab' approach.  This lab transforms the messy, trial-and-error process of niello silverwork into a repeatable, clean system. You'll learn proprietary formulas and techniques to create flawless black in
